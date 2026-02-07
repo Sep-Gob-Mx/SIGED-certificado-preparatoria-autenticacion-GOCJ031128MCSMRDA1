@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOCJ031128MCSMRDA1
+GOCJ031128MCSMRDA1
